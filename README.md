@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NuApt 
+- 👋 Hi, I’m @Nikhil Ujjwal
 - 👀 I’m interested in ...Enjoying Things
 - 🌱 I’m currently learning ...B.Tech CSE @ IIT Mandi
 - 💞️ I’m looking to collaborate on ... Everything which will Interest me
